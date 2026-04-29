@@ -1,7 +1,4 @@
-Rishabh Chouhan
-Bali Rajasthan
-ahemdabaad
-jaipur
-mahendra
+Rishabh kumar
+
 
 
